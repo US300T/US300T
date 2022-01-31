@@ -1,4 +1,3 @@
-
 Subscribe Gratis Untuk Berlangganan Cerita Dewasa👉<iframe width="560" height="315" src="https://www.youtube.com/embed/jdCOowEsarE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe><div class="c4-tabbed-header-channel cbox">
     <ytm-profile-icon class="c4-tabbed-header-profile-icon"><img class="profile-icon-img" alt="" src="https://yt3.ggpht.com/vBd4SGJ3w1TGoyfJ2q7d80uLjQnY6HIN24Cjn01hjcGHlf8-M3tq03UBoY6MUPJwmI2DmwlCxTY=s100-c-k-c0x00ffffff-no-rj"></ytm-profile-icon>
     <div class="c4-tabbed-header-details">
